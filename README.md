@@ -1,5 +1,5 @@
 # blinding-lights
-Yeah
+Yes
 I've been tryin' to call
 I've been on my own for long enough
 Maybe you can show me how to love, maybe
